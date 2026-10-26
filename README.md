@@ -1,7 +1,6 @@
 # Isabella-Florencia-Rocciolino
 ## Sobre Mí 🌟
 ##### 🎓 Estudiante 
-##### 🤍 Dan
 ##### 🏎️ Fan de Franco Colapinto
 ##### 📷 Interesada por la fotografía
 ##### 🥋 Taekwondista
